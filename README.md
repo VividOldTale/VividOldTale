@@ -12,7 +12,6 @@ Text!![7ad10fdc](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets
 
 ![star-rail-bronya](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/5a7be04c-0184-48a5-b203-9c9858713f6c)
 
-credits:@magnoliawriter on tumblr ,
-        @iv-ry on tumblr
+credits: @iv-ry on tumblr
 
 ![tumblr_389c2557f0289f7cdf8d3cbbaf71b2fa_7bcbb63f_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/431dfe81-c3f6-4558-bb51-3ead6c6535bc)
