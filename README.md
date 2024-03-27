@@ -1,5 +1,6 @@
 
-![tumblr_240f98c8a9565a7177d1d91ab9a11bb9_01ac45e9_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/14f3cec6-5c3e-4cbf-80c5-fd144b21aaf8)
+![tumblr_6269d7d7a95d2bf4d2f40f34e24eca4d_a3752b5b_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/aae8c51a-d4f4-4a70-b10a-3c02834588e2)
+
 
 About me![d4edbb51](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/35db21c9-0998-4ab5-8d8c-cb0b42801b05)
 
@@ -14,4 +15,4 @@ Text!![7ad10fdc](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets
 
 credits: @iv-ry on tumblr
 
-![tumblr_389c2557f0289f7cdf8d3cbbaf71b2fa_7bcbb63f_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/431dfe81-c3f6-4558-bb51-3ead6c6535bc)
+![tumblr_6269d7d7a95d2bf4d2f40f34e24eca4d_a3752b5b_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/aae8c51a-d4f4-4a70-b10a-3c02834588e2)
