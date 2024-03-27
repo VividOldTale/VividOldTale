@@ -1,5 +1,5 @@
 
-$${\color{#8B74FF}"To \space use \space our \space strength \space to \space create \space a \space fair \space society...}$$
+**$${\color{#8B74FF}"To \space use \space our \space strength \space to \space create \space a \space fair \space society...}$$**
 
 $${\color{#8B74FF}Isn't \space that \space the \space obvious \space goal?"}$$
 
