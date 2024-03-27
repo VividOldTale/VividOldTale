@@ -15,4 +15,4 @@ credits: @iv-ry , @cafekitsune on tumblr
 
 ![tumblr_6269d7d7a95d2bf4d2f40f34e24eca4d_a3752b5b_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/aae8c51a-d4f4-4a70-b10a-3c02834588e2)
 
-"This place is always part of our homeland, even when it has been corroded by Fragmentum. Silvermane Guards will never turn their backs on their home."
+" No showing off, Seele! Listen to my orders."
