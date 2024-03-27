@@ -1,3 +1,4 @@
+ It was the first time both of us had seen Belobog's real sky... the same sky.
 
 ![tumblr_6269d7d7a95d2bf4d2f40f34e24eca4d_a3752b5b_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/aae8c51a-d4f4-4a70-b10a-3c02834588e2)
 
