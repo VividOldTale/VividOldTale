@@ -13,8 +13,6 @@ $${\color{#8B74FF}Isn't \space that \space the \space obvious \space goal?"}$$
 
 ![star-rail-bronya](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/5a7be04c-0184-48a5-b203-9c9858713f6c)
 
-credit:@iv-ry , @cafekitsune on tumblr
-
 ![tumblr_6269d7d7a95d2bf4d2f40f34e24eca4d_a3752b5b_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/aae8c51a-d4f4-4a70-b10a-3c02834588e2)
 
 **" No showing off, Seele! Listen to my orders."**
