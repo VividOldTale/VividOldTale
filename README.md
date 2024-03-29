@@ -3,7 +3,7 @@
 
 ![robin-sunday](https://github.com/Renew-Your-Definition/Renew-Your-Definition/assets/143153577/379c8066-6687-4d91-a3e9-34e8208fd94a)
 
-![tumblr_0e7fb7c348c6cf379e2217eaf6afe7ec_9a9e0ff3_400](https://github.com/Sea-of-Butterflies/Sea-of-Butterflies/assets/143153577/6b3d2388-2687-46a2-854e-ca42b0864fba)
+![tumblr_c01a1b2f00fb087da7632b089445a860_7e2f6c2d_400](https://github.com/Renew-Your-Definition/Renew-Your-Definition/assets/143153577/28f87926-b009-459a-9d62-91ebea701679)
 
 ![firefly-honkai-star-rail](https://github.com/Renew-Your-Definition/Renew-Your-Definition/assets/143153577/18810281-90fe-4891-938b-b6a3de314a74)
 
