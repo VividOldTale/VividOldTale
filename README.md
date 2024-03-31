@@ -18,6 +18,7 @@ $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \s
 ![2e71f5dc05797aefc00ab7ebfe42d253](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/b6c43e68-65bd-4a67-8b3d-8e9925254f69)
 
 $${\color{#5420d9}Our \space paths \space cross \space once \space more... \space Ready \space for \space another \space dance,}$$
+
 $${\color{#5420d9}memokeeper?}$$
 
 ![tumblr_1058ac8d4a7e2a11e048173630bc7b04_c9105fb9_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/15f121dc-638f-4760-a5c3-988a886faa06)
