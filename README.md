@@ -3,7 +3,10 @@
 ![tumblr_b0c6bd591568dc832819c92327eac191_2a711dff_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/ff223681-3be0-4095-9a37-535f77e871b4)
 
 
+![black-swan-stelle](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/eea11a2e-b1dc-4346-9fa1-d424dd5ddf3d)
 
+
+![black-swan-hsr](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/fc84ada6-6a89-42cf-8bb3-ff7137438e47)
 
 
 
