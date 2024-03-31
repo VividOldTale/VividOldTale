@@ -13,13 +13,21 @@ $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \s
 
 ![71223e383a2fd08c42bd8d84cc848825](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/81941ab3-56ba-4bcf-a807-498e0f907752)
 
-<p align="center">
-$${\color{#9483e1}Solar, \space she/her , \space 7teen}$$
+<p align="center"> $${\color{#9483e1}Solar, \space she/her , \space 7teen}$$
 </p>
 
 $${\color{#9483e1}Read \space my \space rentry \space for \space more \space information}$$
 
 $${\color{#9483e1}Sign \space my \space Guestbook}$$
+
+<p align="center">
+[Guestbook](https://unnamedharmony.123guestbook.com/) 
+</p>  
+ 
+ 
+<p align="center">
+[Rentry](https://rentry.co/WhereTheLegendBegin)
+</p>
 
 ![tumblr_cdc8152a9c96a1afc989935d840c70b2_82a5a886_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/8537b38b-bdb1-4951-b49d-af9a6be8d785)
 
