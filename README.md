@@ -9,8 +9,12 @@ $${\color{#bd7ce4}in \space a \space land \space of \space purity}$$
 
 $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \space preserved \space from \space true \space oblivion}$$
 
+![black-swan-hsr](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/1979ac3d-f423-41b9-a139-e6b393cdde6a)
 
-![black-swan-blackswan](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/7fbcf528-ffaf-4e52-b380-7006f92ef8e9)
+
+
+![black-swan-hsr](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/90c22bb2-cd16-42e6-8dd4-43b83b4c1257)
+
 
 
 
@@ -25,33 +29,6 @@ $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \s
 
 
 ![tumblr_87bbfe8ce1ea1e2fde4b0fc5be717e57_286160e1_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/8982fe80-bd9c-456d-8a2e-e056189483e9)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 ![honkai-honkai-star-rail](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/e8907aa1-830a-4a6b-9a41-789af0d0becd)
 
