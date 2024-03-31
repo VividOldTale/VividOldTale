@@ -3,6 +3,10 @@
 ![tumblr_b0c6bd591568dc832819c92327eac191_2a711dff_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/ff223681-3be0-4095-9a37-535f77e871b4)
 
 
+$${\color{#bd7ce4}Recover \space Those \space Cherished \space Recollections \space and \space enshrine \space them \space in \space a \space land \space of \space purity}$$
+
+$${\color{#bd7ce4}in \space doing so, \space all \space will be \space preserved \space from \space true \space oblivion}$$
+
 ![black-swan-stelle](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/eea11a2e-b1dc-4346-9fa1-d424dd5ddf3d)
 
 
