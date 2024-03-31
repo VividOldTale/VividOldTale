@@ -11,6 +11,7 @@ $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \s
 
 ![black-swan-hsr](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/1979ac3d-f423-41b9-a139-e6b393cdde6a)
 
+![tumblr_582faccf263ba215e96d3b4d4255d50c_03288b38_250](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/8e1ef03c-2ba9-4f1f-ac62-4286743e9949)
 
 
 
