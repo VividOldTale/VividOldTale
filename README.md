@@ -14,6 +14,9 @@ $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \s
 ![71223e383a2fd08c42bd8d84cc848825](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/81941ab3-56ba-4bcf-a807-498e0f907752)
 
 
+![076d0ac9f0a761ccd9b2cedf1d26c712](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/173145cb-c41a-4dca-bbd9-320ae8f68c55)
+
+
 ![tumblr_1058ac8d4a7e2a11e048173630bc7b04_c9105fb9_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/15f121dc-638f-4760-a5c3-988a886faa06)
 
 
