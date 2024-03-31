@@ -15,8 +15,9 @@ $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \s
 
 ![tumblr_cdc8152a9c96a1afc989935d840c70b2_82a5a886_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/8537b38b-bdb1-4951-b49d-af9a6be8d785)
 
-![076d0ac9f0a761ccd9b2cedf1d26c712](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/173145cb-c41a-4dca-bbd9-320ae8f68c55)
+![2e71f5dc05797aefc00ab7ebfe42d253](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/b6c43e68-65bd-4a67-8b3d-8e9925254f69)
 
+$${\color{#5420d9}Out \space paths \space cross \space once \space more... \space Ready \space for \space another \space dance, \space memokeeper?}$$
 
 ![tumblr_1058ac8d4a7e2a11e048173630bc7b04_c9105fb9_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/15f121dc-638f-4760-a5c3-988a886faa06)
 
