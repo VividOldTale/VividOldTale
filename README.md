@@ -9,10 +9,8 @@ $${\color{#bd7ce4}in \space a \space land \space of \space purity}$$
 
 $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \space preserved \space from \space true \space oblivion}$$
 
-![black-swan-stelle](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/eea11a2e-b1dc-4346-9fa1-d424dd5ddf3d)
 
-
-![black-swan-hsr](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/fc84ada6-6a89-42cf-8bb3-ff7137438e47)
+![black-swan-blackswan](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/7fbcf528-ffaf-4e52-b380-7006f92ef8e9)
 
 
 
