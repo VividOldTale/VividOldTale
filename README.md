@@ -13,6 +13,7 @@ $${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \s
 
 ![71223e383a2fd08c42bd8d84cc848825](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/81941ab3-56ba-4bcf-a807-498e0f907752)
 
+![tumblr_cdc8152a9c96a1afc989935d840c70b2_82a5a886_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/8537b38b-bdb1-4951-b49d-af9a6be8d785)
 
 ![076d0ac9f0a761ccd9b2cedf1d26c712](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/173145cb-c41a-4dca-bbd9-320ae8f68c55)
 
