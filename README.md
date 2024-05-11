@@ -1,5 +1,4 @@
-![tumblr_b0c6bd591568dc832819c92327eac191_2a711dff_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/ff223681-3be0-4095-9a37-535f77e871b4)
-
+![](https://64.media.tumblr.com/cabc873926ba5c45818a1f5a3aa3bc63/46be7402a04032de-f8/s1280x1920/051b3b269a87f01d9a7d67f0e13ecf63989efa42.pnj)
 
 ![](https://64.media.tumblr.com/d2e1cc1f52441feececa06fdd4bdc742/634fdd0d9056ad94-7f/s1280x1920/a6057559fca392eb8fec53842444f54a1fec1d5a.pnj)
 
@@ -35,4 +34,4 @@ $${\color{#5420d9}memokeeper?}$$
 
 ![](https://64.media.tumblr.com/d2e1cc1f52441feececa06fdd4bdc742/634fdd0d9056ad94-7f/s1280x1920/a6057559fca392eb8fec53842444f54a1fec1d5a.pnj)
 
-![tumblr_87bbfe8ce1ea1e2fde4b0fc5be717e57_286160e1_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/8982fe80-bd9c-456d-8a2e-e056189483e9)
+![](https://64.media.tumblr.com/c17085ccce3b18639540a8f10d27fa57/46be7402a04032de-71/s1280x1920/4dba035a84c957f30fb8e3b3c5acd7818be2c9e6.pnj)
