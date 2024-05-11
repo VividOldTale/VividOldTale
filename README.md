@@ -2,11 +2,7 @@
 
 ![](https://64.media.tumblr.com/d2e1cc1f52441feececa06fdd4bdc742/634fdd0d9056ad94-7f/s1280x1920/a6057559fca392eb8fec53842444f54a1fec1d5a.pnj)
 
-$${\color{#bd7ce4}Recover \space Those \space Cherished \space Recollections \space and \space enshrine \space them}$$
-
-$${\color{#bd7ce4}in \space a \space land \space of \space purity}$$
-
-$${\color{#bd7ce4}in \space doing \space so, \space all \space will \space be \space preserved \space from \space true \space oblivion}$$
+![](https://64.media.tumblr.com/b57298f9990a8c3807d088d767e7d6ae/227ca944526be4dc-d8/s75x75_c1/7c8ef01f3b0e5790ae2f733ec404e3d3b06eb8d2.webp) Have you heard of the song? It's called If I Can Stop One Heart From Breaking, by Robin. Her songs are played in the dreamland from time to time as the Charmony Festival is drawing close.
 
 ![](https://media1.tenor.com/m/SOxJWDp-OB4AAAAd/firefly-firefly-hsr.gif)
 
