@@ -24,9 +24,9 @@ $${\color{#9483e1}Sign \space my \space Guestbook}$$
  
 ╰┈➤ ┆┆ [Rentry](https://rentry.co/WhereTheLegendBegin)
 
-![tumblr_cdc8152a9c96a1afc989935d840c70b2_82a5a886_400](https://github.com/interstellar-Journey/interstellar-journey/assets/143153577/8537b38b-bdb1-4951-b49d-af9a6be8d785)
+![](https://64.media.tumblr.com/c63c4f23fdeac9e88194e0f70fcecb17/fcf4c7eda8deaed4-76/s400x600/b6d03192f6e579e00388d12e0854e5c6d988ba2e.webp)
 
-![](https://media1.tenor.com/m/yjKgWOJnldYAAAAd/acheron-black-swan.gif)
+![](https://media1.tenor.com/m/yt3oiVPoRE0AAAAC/honkai-star-rail-robin.gif)
 
 $${\color{#5420d9}Our \space paths \space cross \space once \space more.. \space Ready \space for \space another \space dance,}$$
 
