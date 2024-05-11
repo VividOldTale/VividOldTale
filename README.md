@@ -24,9 +24,7 @@ $${\color{#9483e1}Sign \space my \space Guestbook}$$
 
 ![](https://media1.tenor.com/m/yt3oiVPoRE0AAAAC/honkai-star-rail-robin.gif)
 
-$${\color{#5420d9}Our \space paths \space cross \space once \space more.. \space Ready \space for \space another \space dance,}$$
-
-$${\color{#5420d9}memokeeper?}$$
+![](https://64.media.tumblr.com/93fcc5f9ce834961539fb2b801c60208/227ca944526be4dc-6b/s75x75_c1/65f22b074868d4f92a76f1709618fb4ede473148.gifv) If birds are destined to fall to the ground, why do they still insist on flying into the sky?
 
 ![](https://64.media.tumblr.com/d2e1cc1f52441feececa06fdd4bdc742/634fdd0d9056ad94-7f/s1280x1920/a6057559fca392eb8fec53842444f54a1fec1d5a.pnj)
 
