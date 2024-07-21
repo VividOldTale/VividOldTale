@@ -1,2 +1,2 @@
 
-![](https://media1.tenor.com/m/TsEh_PJhTKwAAAAC/pjsk-pjsk-anime.gif)
+![](https://media1.tenor.com/m/_NcneR1KFlYAAAAd/hololive-hololive-justice.gif)
