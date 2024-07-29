@@ -1,2 +1,2 @@
 
-![](https://media1.tenor.com/m/JxG2e5Y3iXIAAAAd/hololive-hololive-justice.gif)
+![](https://media1.tenor.com/m/cyV8kM0loRMAAAAd/gigi-murin-gigi.gif)
