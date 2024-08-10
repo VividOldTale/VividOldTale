@@ -1,2 +1,2 @@
 
-![](https://media1.tenor.com/m/ffYRl6CkZFUAAAAd/cecilia-immergreen-cecilia.gif)
+![](https://media1.tenor.com/m/UprarMMKeZYAAAAd/im-futaba-spinning.gif)
