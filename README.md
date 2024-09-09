@@ -5,6 +5,8 @@
 
 ![](https://media1.tenor.com/m/9NHbFQwCB4UAAAAd/more-more-jump-mmj.gif)
 
+![](https://komarev.com/ghpvc/?username=VividOldTale&color=orange&label=⋆.˚𑁍)
+
 ![](https://64.media.tumblr.com/3fabce5957ef1ae71b6fc91c6f4735f1/6347c9046cb9e820-02/s400x600/78176dd03a8c4bb0a0833d087e8b21b5b43506e7.pnj)
 
 $${\color{orange} just \space a \space mmj \space fan \space sitting \space in \space the \space Pjsk \space area \space most \space of \space the \space time!}$$
@@ -19,4 +21,4 @@ $${\color{orange} since \space im \space offtab \space sometimes!}$$
 
 ![](https://64.media.tumblr.com/3fabce5957ef1ae71b6fc91c6f4735f1/6347c9046cb9e820-02/s400x600/78176dd03a8c4bb0a0833d087e8b21b5b43506e7.pnj)
 
-$${\color{orange} Note:}$$ PLEASE BMF I LITERALLY DONT HAVE ANYONE TO TALK TOO , MY SKINS MAY LOOK SCARY OR INTIMIDATING TO INTERACT WITH BUT I SWEAR IM NICE 
+$${\color{orange} Note:}$$ PLEASE BMF I LITERALLY DONT HAVE ANYONE TO TALK TOO , MY SKINS MAY LOOK SCARY OR INTIMIDATING BUT I SWEAR IM NICE 
