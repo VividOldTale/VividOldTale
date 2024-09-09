@@ -9,6 +9,14 @@
 
 $${\color{orange} just \space a \space mmj \space fan \space sitting \space in \space the \space Pjsk \space area \space most \space of \space the \space time!}$$
 
-$${\color{orange} dont \space be \space afraid \space to \space interact \space it \space would \space be \space better \space to \space Whisper \space first \space since \space im \space offtab \space sometimes!}$$
+$${\color{orange} dont \space be \space afraid \space to \space interact \space it \space would \space be \space better \space to \space Whisper \space first}$$
 
-PLEASE BMF , I LITERALLY DONT HAVE ANYONE TO TALK TOO , MY SKINS JUST LOOK SCARY BUT I SWEAR IM NICE 
+$${\color{orange} since \space im \space offtab \space sometimes!}$$
+
+![](https://64.media.tumblr.com/fcf3a0bc87c0e19789003d7f6f72a15e/616e8eff0beab66d-53/s400x600/a44822fcab34f69bef6abb95c22b4a3513c56d1e.gifv)
+
+![](https://media1.tenor.com/m/vJ1o8msJ2bsAAAAd/minori-hanasato-hanasato-minori.gif)
+
+![](https://64.media.tumblr.com/3fabce5957ef1ae71b6fc91c6f4735f1/6347c9046cb9e820-02/s400x600/78176dd03a8c4bb0a0833d087e8b21b5b43506e7.pnj)
+
+$${\color{orange} Note:}$$ PLEASE BMF I LITERALLY DONT HAVE ANYONE TO TALK TOO , MY SKINS MAY LOOK SCARY OR INTIMIDATING TO INTERACT WITH BUT I SWEAR IM NICE 
