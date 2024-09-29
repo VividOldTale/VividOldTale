@@ -1,7 +1,6 @@
 ![](https://64.media.tumblr.com/a285dd315b2bf51ad6794fc4c0db848e/914a6aaac7e53504-cc/s1280x1920/4fb9c3838bf162d83f12bfc0d362cebba0a1b949.pnj)
 
-wip
-
+![](https://media1.tenor.com/m/Daq7rnsnIMgAAAAC/watashi-wa-ame-i-am-rain.gif)
 
 ![](https://64.media.tumblr.com/0889bb90504d7391d5d1ee1ffa81437d/914a6aaac7e53504-12/s1280x1920/fb7515e441ba39843a34c342faf3fea507691324.pnj)
 
