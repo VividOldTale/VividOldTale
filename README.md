@@ -1,8 +1,7 @@
 ![](https://64.media.tumblr.com/a285dd315b2bf51ad6794fc4c0db848e/914a6aaac7e53504-cc/s1280x1920/4fb9c3838bf162d83f12bfc0d362cebba0a1b949.pnj)
 
-![](https://media1.tenor.com/m/u3jYY2oFnoMAAAAC/project-sekai-hatsune-miku-colourful-stage.gif)
+![](https://64.media.tumblr.com/e9b45360a226a2ef549d30030b104d35/2d384ad5dda6873d-8f/s540x810/5dbbd6cb11059cf64774e7bcc0c1e6c268dd3b8e.gifv)
 
-![](https://64.media.tumblr.com/5e2b02046cca3054f04621f633602e0e/9e2fca3d59303192-35/s2048x3072/c4f6a09cc40cd36bc69149c4c71b67e281d2da3e.pnj)
 
 $${\color{pink}All \space I \space want \space is \space to \space be \space myself,}$$
 
