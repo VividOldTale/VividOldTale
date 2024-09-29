@@ -2,11 +2,9 @@
 
 ![](https://media1.tenor.com/m/Daq7rnsnIMgAAAAC/watashi-wa-ame-i-am-rain.gif)
 
-$${\color{pink}Who \space \space am \space I?}$$
+$${\color{pink}All \space I \space want \space is \space to \space be \space myself,}$$
 
-$${\color{pink}The \space pity \space you \space have \space for \space me,}$$
-
-$${\color{pink} Within \space the \space night \space sky, \space I \space Lost \space my \space name}$$
+$${\color{pink}so \space why... \space why \space does \space this \space have \space to \space be \space so \space painful?}$$
 
 ![](https://64.media.tumblr.com/0889bb90504d7391d5d1ee1ffa81437d/914a6aaac7e53504-12/s1280x1920/fb7515e441ba39843a34c342faf3fea507691324.pnj)
 
