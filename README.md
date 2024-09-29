@@ -2,6 +2,8 @@
 
 ![](https://media1.tenor.com/m/u3jYY2oFnoMAAAAC/project-sekai-hatsune-miku-colourful-stage.gif)
 
+![](https://64.media.tumblr.com/5e2b02046cca3054f04621f633602e0e/9e2fca3d59303192-35/s2048x3072/c4f6a09cc40cd36bc69149c4c71b67e281d2da3e.pnj)
+
 $${\color{pink}All \space I \space want \space is \space to \space be \space myself,}$$
 
 $${\color{pink}so \space why... \space why \space does \space this \space have \space to \space be \space so \space painful?}$$
