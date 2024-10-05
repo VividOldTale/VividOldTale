@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/725cb67bfa9b65a52b36a31279cff475/8de7c570e3a2086c-b2/s640x960/683c4817743fa98a1b5c831727334678bb2e82d9.pnj)
 
-![](https://media1.tenor.com/m/kYkzinK5b0MAAAAC/mizuki-akiyama-mizuki-de-suni.gif)
+![](https://media1.tenor.com/m/thyYCKonBsAAAAAd/lower-ones-eyes-project-sekai.gif)
 
 
 $${\color{pink}All \space I \space want \space is \space to \space be \space myself,}$$
