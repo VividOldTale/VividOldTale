@@ -5,11 +5,13 @@
 
 $${\color{pink}All \space I \space want \space is \space to \space be \space myself,}$$
 
-$${\color{purple}so \space why... \space why \space does \space this \space have \space to \space be \space so \space painful?}$$
+$${\color{pink}so \space why... \space why \space does \space this \space have \space to \space be \space so \space painful?}$$
 
 ![](https://64.media.tumblr.com/9befe37851f16065d4b068507c4a388a/651e341667a0c09f-29/s1280x1920/0c7b24298d1b91a6a7826d3c50bc9941d5902e4c.pnj)
 
 ![](https://media1.tenor.com/m/pL8TCGNyt_AAAAAd/lower-ones-eyes-ena-shinonome.gif)
+
+![](https://64.media.tumblr.com/02895d2eeff09a234bd207e4f6b08dff/8c2d801857d681bc-83/s1280x1920/2e2d6ac1657a47b7020ba9f5be9a2738a8db136e.pnj)
 
 $${\color{brown} If \space we \space are \space to \space be \space separated, \space if \space we \space are \space to \space lose \space our \space way,}$$
 
