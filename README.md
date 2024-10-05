@@ -26,7 +26,6 @@ $${\color{brown} if \space I \space could \space just \space keep \space you \sp
 ![](https://64.media.tumblr.com/f4f6162791c5d1d894b9cf07adaddc90/8c2d801857d681bc-53/s1280x1920/1641a9db556831241d354cd302f5f35853b2eae4.pnj)
 
 ![](https://64.media.tumblr.com/462902ef2d7b7ac6ad218b5c113e166e/b4377b63ab60080d-ee/s540x810/70cfd0cbeaa4c1668462fdaef211fb32cfb4107b.webp)
-![](https://64.media.tumblr.com/f4f6162791c5d1d894b9cf07adaddc90/8c2d801857d681bc-53/s1280x1920/1641a9db556831241d354cd302f5f35853b2eae4.pnj)
 
 ![](https://64.media.tumblr.com/0356dcad1abe36957e289c33888f9061/2f5d0fcaab8dfb1e-c1/s1280x1920/38b3d3e89c0c5180494189427b6f5de8a2b9a266.pnj)
 
