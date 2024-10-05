@@ -2,12 +2,14 @@
 
 ![](https://media1.tenor.com/m/thyYCKonBsAAAAAd/lower-ones-eyes-project-sekai.gif)
 
+![](https://64.media.tumblr.com/11db140996c0ffc85f7e372bbd5d1969/8c2d801857d681bc-e0/s1280x1920/589aece9f3fa344ff1610e0f300992b103851db2.pnj)
+
 
 $${\color{pink}All \space I \space want \space is \space to \space be \space myself,}$$
 
 $${\color{pink}so \space why... \space why \space does \space this \space have \space to \space be \space so \space painful?}$$
 
-![](https://64.media.tumblr.com/9befe37851f16065d4b068507c4a388a/651e341667a0c09f-29/s1280x1920/0c7b24298d1b91a6a7826d3c50bc9941d5902e4c.pnj)
+![](https://64.media.tumblr.com/f4f6162791c5d1d894b9cf07adaddc90/8c2d801857d681bc-53/s1280x1920/1641a9db556831241d354cd302f5f35853b2eae4.pnj)
 
 ![](https://media1.tenor.com/m/pL8TCGNyt_AAAAAd/lower-ones-eyes-ena-shinonome.gif)
 
@@ -20,6 +22,11 @@ $${\color{brown} I’ll \space make \space sure \space we’ll \space be \space 
 $${\color{brown} no \space matter \space how \space many \space times \space it \space takes \space If \space you \space will \space stay \space here \space with \space me}$$
 
 $${\color{brown} if \space I \space could \space just \space keep \space you \space from \space leaving}$$
+
+![](https://64.media.tumblr.com/f4f6162791c5d1d894b9cf07adaddc90/8c2d801857d681bc-53/s1280x1920/1641a9db556831241d354cd302f5f35853b2eae4.pnj)
+
+![](https://64.media.tumblr.com/462902ef2d7b7ac6ad218b5c113e166e/b4377b63ab60080d-ee/s540x810/70cfd0cbeaa4c1668462fdaef211fb32cfb4107b.webp)
+![](https://64.media.tumblr.com/f4f6162791c5d1d894b9cf07adaddc90/8c2d801857d681bc-53/s1280x1920/1641a9db556831241d354cd302f5f35853b2eae4.pnj)
 
 ![](https://64.media.tumblr.com/0356dcad1abe36957e289c33888f9061/2f5d0fcaab8dfb1e-c1/s1280x1920/38b3d3e89c0c5180494189427b6f5de8a2b9a266.pnj)
 
