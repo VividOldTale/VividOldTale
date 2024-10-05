@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/828565f8d4e2244fb0c4bb2f3e892168/d3180c09f981faaf-d7/s1280x1920/f90b71bf8276b86e548d0e724aa1247edccf9295.pnj)
+![](https://64.media.tumblr.com/725cb67bfa9b65a52b36a31279cff475/8de7c570e3a2086c-b2/s640x960/683c4817743fa98a1b5c831727334678bb2e82d9.pnj)
 
 ![](https://media1.tenor.com/m/kYkzinK5b0MAAAAC/mizuki-akiyama-mizuki-de-suni.gif)
 
@@ -21,7 +21,7 @@ $${\color{brown} no \space matter \space how \space many \space times \space it 
 
 $${\color{brown} if \space I \space could \space just \space keep \space you \space from \space leaving}$$
 
-![](https://64.media.tumblr.com/1848266d03fe98420589566ddc056e5a/d3180c09f981faaf-13/s1280x1920/c56ab0763000b3711a8dc46438470e3c306b2cb8.pnj)
+![](https://64.media.tumblr.com/725e3275d3fd47eb82952e11fc366e2f/8de7c570e3a2086c-af/s640x960/28c70fab55bdcb643e3a0f986e6ddda11160fd3a.pnj)
 
 
 ![](https://64.media.tumblr.com/fa07998217787e1042ffec1443ba51b1/ec62663de96c7c03-a3/s100x200/e9ca557a96d7c5d4b9184f9691f4501db4ee679e.pnj) ![](https://64.media.tumblr.com/daee87bd5b13b5b88bf495cff0617c0d/ec62663de96c7c03-fe/s100x200/8faf7a09c3939304ddf4a11dffc2c6139373e954.pnj) ![](https://64.media.tumblr.com/53722913c6824351b3fa140321f608c4/ec62663de96c7c03-be/s100x200/b9673504b27cf3d200eed2f32367973087c2ba63.pnj)
