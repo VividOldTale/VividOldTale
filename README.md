@@ -3,7 +3,7 @@
 ![](https://64.media.tumblr.com/050d51e6d11b727569d69056be9e52b7/788e402c691f4fe0-ff/s1280x1920/91662bd37bd955256c9ba95f5b87706a315fa69c.jpg)
 
 
-$${\color{purple}All \space I \space want \space is \space to \space be \space myself,}$$
+$${\color{pink}All \space I \space want \space is \space to \space be \space myself,}$$
 
 $${\color{red}so \space why... \space why \space does \space this \space have \space to \space be \space so \space painful?}$$
 
