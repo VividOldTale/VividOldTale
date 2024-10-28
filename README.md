@@ -1,6 +1,6 @@
 ![](https://64.media.tumblr.com/2a52c032aa38d6c2e7162048c2812fa1/2f5d0fcaab8dfb1e-39/s1280x1920/35187ddd5f6e100b773639268b5ca39ddc01d407.pnj)
 
-![](https://media1.tenor.com/m/thyYCKonBsAAAAAd/lower-ones-eyes-project-sekai.gif)
+![](https://64.media.tumblr.com/050d51e6d11b727569d69056be9e52b7/788e402c691f4fe0-ff/s1280x1920/91662bd37bd955256c9ba95f5b87706a315fa69c.jpg)
 
 ![](https://64.media.tumblr.com/11db140996c0ffc85f7e372bbd5d1969/8c2d801857d681bc-e0/s1280x1920/589aece9f3fa344ff1610e0f300992b103851db2.pnj)
 
