@@ -5,7 +5,7 @@
 
 $${\color{pink}All \space I \space want \space is \space to \space be \space myself,}$$
 
-$${\color{pink}so \space why... \space why \space does \space this \space have \space to \space be \space so \space painful?}$$
+$${\color{red}so \space why... \space why \space does \space this \space have \space to \space be \space so \space painful?}$$
 
 ![](https://64.media.tumblr.com/f4f6162791c5d1d894b9cf07adaddc90/8c2d801857d681bc-53/s1280x1920/1641a9db556831241d354cd302f5f35853b2eae4.pnj)
 
