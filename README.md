@@ -17,6 +17,6 @@ $${\color{#f9c076}This \space street \space has \space always \space been \space
 
 $${\color{\#fcd98d}• ───────────────── •}$$
 
-![](https://64.media.tumblr.com/0943bade9e400128d32ad23496d2fe27/ed2564ea7e3e2087-90/s640x960/2b561696f2d5ed006491fb400e9ebccafb74f8f9.gifv)
+![](https://64.media.tumblr.com/67515e6f009804ec0e27601f64d8ef9c/85977a86590ce982-a1/s1280x1920/64de7f19fcf55c201ff9ab4f75118606c3eaeee8.pnj)
 
 ![](https://komarev.com/ghpvc/?username=VividOldTale&color=yellow)
