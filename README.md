@@ -7,6 +7,7 @@ $${\color{#75d7f0}▶}$$ $${\color{#f3448e}𝙍𝙚𝙖𝙙𝙮 \space 𝙨𝙩�
 
 ![](https://64.media.tumblr.com/9861c0cb59a097904b1c8098d5a16abc/218cee35b2586776-b5/s1280x1920/dab4c7128447a7acde7442575816955da21e24a3.pnj)
 
+<div dir="rtl">
 [𝙍𝙚𝙣𝙩𝙧𝙮](https://rentry.co/0tomos) $${\color{\#f3c679},}$$ [𝘼𝙩𝙖𝙗𝙤𝙤𝙠](https://secretdistance.atabook.org/)
 
 ![](https://64.media.tumblr.com/0943bade9e400128d32ad23496d2fe27/ed2564ea7e3e2087-90/s640x960/2b561696f2d5ed006491fb400e9ebccafb74f8f9.gifv)
