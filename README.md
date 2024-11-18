@@ -7,11 +7,13 @@ $${\color{#75d7f0}▶}$$ $${\color{#f3448e}𝙍𝙚𝙖𝙙𝙮 \space 𝙨𝙩�
 
 ![](https://64.media.tumblr.com/9861c0cb59a097904b1c8098d5a16abc/218cee35b2586776-b5/s1280x1920/dab4c7128447a7acde7442575816955da21e24a3.pnj)
 
+$${\color{#f9c076}この街はいつもここに}$$
+
 ![](https://64.media.tumblr.com/9d57f124c1996ed4275486b6484f7e17/306dd86cfbec7469-34/s2048x3072/562cbc7d7b34d678b870dff369f761d1e40b0e56.jpg)
 
-$${\color{#faba33}—–★–———————–}$$
+$${\color{#f9d754}刻み込んでいく}$$
 
-$${\color{#f9c076}This \space street \space has \space always \space been \space here \space for \space me}$$
+$${\color{#faba33}—–★–———————–}$$
 
 [𝙍𝙚𝙣𝙩𝙧𝙮](https://rentry.co/0tomos) $${\color{\#fcd98d},}$$ [𝘼𝙩𝙖𝙗𝙤𝙤𝙠](https://secretdistance.atabook.org/)
 
