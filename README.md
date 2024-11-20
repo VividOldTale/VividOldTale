@@ -10,10 +10,7 @@ $${\color{#faba33}—–★–———————–}$$
 
 [𝙍𝙚𝙣𝙩𝙧𝙮](https://rentry.co/0tomos) $${\color{#fcd98d},}$$ [𝘼𝙩𝙖𝙗𝙤𝙤𝙠](https://secretdistance.atabook.org/)
 $${\color{#f9d754}➜ 𝘾𝙡𝙞𝙘𝙠 \space 𝙛𝙤𝙧 \space 
- 𝙇𝙞𝙣𝙠}$$ 
- <p align="center">
-
-   ![](https://64.media.tumblr.com/89e4c469730cde5e8b8c80dc94379f37/3d7f03542b608453-c8/s75x75_c1/d09ce9cb3b5cea923220db1a8e10b366141f9300.gifv)
+ 𝙇𝙞𝙣𝙠}$$  ![](https://64.media.tumblr.com/89e4c469730cde5e8b8c80dc94379f37/3d7f03542b608453-c8/s75x75_c1/d09ce9cb3b5cea923220db1a8e10b366141f9300.gifv)
 
 $${\color{\#fcd98d}• ───────────────── •}$$
 
