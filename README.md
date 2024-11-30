@@ -1,7 +1,7 @@
-![](https://64.media.tumblr.com/cc7c9264bd38b088692a5b9e77b840b6/685bf45843229c68-10/s540x810/415c6b3bfa62c823312b563eb03987a04d852061.gifv)
+![](https://64.media.tumblr.com/7c1660c2a296ef356a7fa9b649dfbb09/bae54cea2a11d227-1a/s1280x1920/7b8b1295a151339072ee07663b48d354af03b02a.pnj)
 
 
-$${\color{#d7286a}—–★–———————–}$$
+$${\color{#fffff}—–★–———————–}$$
 
 
 
