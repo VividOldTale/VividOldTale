@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/7c1660c2a296ef356a7fa9b649dfbb09/bae54cea2a11d227-1a/s1280x1920/7b8b1295a151339072ee07663b48d354af03b02a.pnj)
+![](https://64.media.tumblr.com/dd6822d829260a317f3ed912937974d4/18a552a89a95db6b-c8/s1280x1920/9777271b1c39dc0af200234fbe46df1493046db6.jpg)
 
 
 $${\color{#fffff}—–★–———————–}$$
