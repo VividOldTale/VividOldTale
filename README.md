@@ -4,7 +4,9 @@
 
 <p align="center" 
 
-[strawpage](https://parallelharmonies.straw.page)  ‎‎ ‎ ‎ ‎     [rentry]( https://rentry.co/0tomos)
+  ![](https://64.media.tumblr.com/a9425572bee503600b206d0bc4604672/bbb6fcd205bbed93-17/s75x75_c1/a50a217d0f5f4948b642448c81523e43a2b4fae7.gifv)
+[strawpage](https://parallelharmonies.straw.page)   ,‎     [rentry]( https://rentry.co/0tomos)
+![](https://64.media.tumblr.com/a9425572bee503600b206d0bc4604672/bbb6fcd205bbed93-17/s75x75_c1/a50a217d0f5f4948b642448c81523e43a2b4fae7.gifv)
 
 $${\color{#orange}—–★–———————–}$$
 
