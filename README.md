@@ -15,5 +15,5 @@
 ![](https://64.media.tumblr.com/7599b078dea526caf40790c0159f4c38/f66b8aeaa955beee-c2/s2048x3072/322e444bf0b2e8f2185f965e50a8a4d75d74d778.pnj)
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=VividOldTale&label=Fans&color=red">
+  <img src="https://komarev.com/ghpvc/?username=VividOldTale&label=Fans&color=ef106c">
   </p>
