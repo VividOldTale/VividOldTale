@@ -3,8 +3,7 @@
 
 <p align="center" 
  
-[strawpage](https://parallelharmonies.straw.page)  ‎‎ ‎ ‎ ‎     
-[rentry]( wait)
+[strawpage](https://parallelharmonies.straw.page)  ‎‎ ‎ ‎ ‎     [rentry]( https://rentry.co/0tomos)
 
 $${\color{#orange}—–★–———————–}$$
 
