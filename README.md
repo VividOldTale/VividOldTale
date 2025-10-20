@@ -1,6 +1,8 @@
 ![](https://64.media.tumblr.com/03dc92b900098e8d77edf76463c96369/f66b8aeaa955beee-e2/s2048x3072/7b5b40d0237d817f73a37ef658964695734dc7d5.pnj)
 
-![](https://64.media.tumblr.com/1ebb6c634af4d77d7d5d51775acf9f76/f66b8aeaa955beee-4f/s640x960/c363e89cfd27c3f0570bacff18ced8ac7568cd29.pnj)
+<p align="center"
+  
+![](https://64.media.tumblr.com/2f00f6a28bcd62afdaf3691554ec0607/99adbc0b3fbfa4ae-09/s400x600/1fdb6f97c911e57a79c8fdc5f75adb7363b96050.pnj)
 
 <p align="center" 
 
@@ -15,3 +17,6 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=VividOldTale&label=Fans&color=ef106c">
   </p>
+
+  [Celestia graphic credit](https://www.tumblr.com/scythidol)
+  
