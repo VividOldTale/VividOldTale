@@ -2,7 +2,7 @@
 
 <p align="center"
   
-![](https://64.media.tumblr.com/2f00f6a28bcd62afdaf3691554ec0607/99adbc0b3fbfa4ae-09/s400x600/1fdb6f97c911e57a79c8fdc5f75adb7363b96050.pnj)
+![](https://64.media.tumblr.com/2d081004d50eb80ac2b54f5593fd9e50/0df6b8f2157b05bf-5c/s1280x1920/ed60edb445a3f0d010e361c8d898a9cc70cc3fdd.gifv)
 
 <p align="center" 
 
@@ -18,5 +18,6 @@
   <img src="https://komarev.com/ghpvc/?username=VividOldTale&label=Fans&color=ef106c">
   </p>
 
-  [Celestia graphic credit](https://www.tumblr.com/scythidol)
+Credits to [Klawkoga](blr.com/klawkoga/789387920040738816/celestia-ludenberg-tumblr?source=share)
+for the celestia graphics 
   
