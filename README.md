@@ -11,8 +11,4 @@
 
 [strawpage](https://parallelharmonies.straw.page)   
 
-
-
-<p align="center">
-  <img src="https://komarev.com/ghpvc/?username=VividOldTale&label=Fans&color=ef106c">
   </p>
