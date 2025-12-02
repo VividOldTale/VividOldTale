@@ -11,4 +11,5 @@
 
 [strawpage](https://parallelharmonies.straw.page)   
 
+Might make a rentry, my strawpage is not updated (lost my pass</3)
   </p>
