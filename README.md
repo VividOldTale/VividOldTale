@@ -2,8 +2,7 @@
 
 <p align="center"
   
-![](https://64.media.tumblr.com/2525ac4fea4405269d82c1e134ae3f11/9521aa1b747bfb09-32/s1280x1920/ed2ff2dd29cf916380eacecd5056178f6a1cedf4.pnj
-)
+![](https://media1.tenor.com/m/EzvrR3WdgIMAAAAC/tamamo-tamamo-cross.gif)
 
 ![](https://64.media.tumblr.com/eb4e1bc7910ba200ced2a181f4f4cf87/0e6f05bddd4ffc90-cc/s1280x1920/e6d5b19123f88b45d0e73948f5259b6b97407909.pnj)
 
