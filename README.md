@@ -1,7 +1,7 @@
 
 <p align="center"
   
-![](https://media1.tenor.com/m/ReEfbgQVRv8AAAAd/tamamo-tamamo-cross.gif)
+![](https://media.tenor.com/gIpvyOwL4c8AAAAj/jahoda-genshin.gif)
 
 <p align="center" 
 
