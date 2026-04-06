@@ -42,7 +42,5 @@ Basic Dni , Just Don't be weird
 ──────•✦•──────
 
   <p align="center  
-    
-[strawpage(Outdated)](https://parallelharmonies.straw.page)   
-
+  
   </p>
