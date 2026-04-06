@@ -1,7 +1,7 @@
 
 <p align="center"
   
-![](https://media1.tenor.com/m/t8MKnGKWn-YAAAAC/pjsk-pjsk-anime.gif)
+![](https://media1.tenor.com/m/91nHegKkZI0AAAAd/pjsk-anime-pjsk.gif)
 
 <p align="center" 
 
