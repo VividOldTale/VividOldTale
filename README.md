@@ -32,6 +32,10 @@ DNI
 Basic Dni , Just Don't be weird
 
 <p align="center"
+
+──────•✦•──────
+
+<p align="center"
   
 [strawpage(Outdated)](https://parallelharmonies.straw.page)   
 
