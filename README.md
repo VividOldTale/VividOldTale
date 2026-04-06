@@ -39,8 +39,5 @@ Basic Dni , Just Don't be weird
 
 <p align="center"
 
-──────•✦•──────
-
-  <p align="center  
   
   </p>
