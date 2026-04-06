@@ -1,8 +1,11 @@
 
 <p align="center"
   
-![](https://media1.tenor.com/m/91nHegKkZI0AAAAd/pjsk-anime-pjsk.gif)
+![](https://media1.tenor.com/m/eQYmS-ROZeUAAAAC/leo-need-ichika-hoshino.gif)
 
+<p align="center"
+
+Mae , Nineteen  , Seasian
 <p align="center" 
 
 [strawpage(Outdated)](https://parallelharmonies.straw.page)   
