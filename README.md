@@ -5,7 +5,7 @@
 
 <p align="center"
   
-       » [neo] «
+  NEO   
 
 <p align="center" 
   
