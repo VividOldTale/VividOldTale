@@ -25,7 +25,14 @@ Interests
 
 ➜ **Project Sekai, Persona, Hololive, FNAF** , Alnst , MLP , Demon Slayer, SpyxFamily , Bandori , Umamusume , **Yuri** , Vocaloid , DDLC , Genshin , Hsr ,chiikawa , Resident evil , Silent hill
 
+<p align="center"
 
+DNI
+
+Basic Dni , Just Don't be weird
+
+<p align="center"
+  
 [strawpage(Outdated)](https://parallelharmonies.straw.page)   
 
   </p>
