@@ -9,7 +9,7 @@
 
 <p align="center" 
   
- 1:00 ─〇───── 3:03
+ 1:05 ─〇───── 3:03
 
  <p align="center"
    
