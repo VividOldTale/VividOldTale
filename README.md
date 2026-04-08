@@ -23,7 +23,7 @@
   
 **Interests**
 
-**Project Sekai, Persona, Hololive, FNAF** , Alnst , cosmic princess kaguya , Demon Slayer, SpyxFamily , Bandori , Umamusume , **Yuri Mangas** , Vocaloid , DDLC , Genshin , Hsr , Resident evil , Silent hill , Madoka magica , Frieren
+**Project Sekai, Persona, Hololive, FNAF** , Alnst , Demon Slayer, SpyxFamily , Bandori , Umamusume , **Yuri Mangas** , Vocaloid , DDLC , Genshin , Hsr , Resident evil , Silent hill , Madoka magica , Frieren
 
 <p align="center"
 
