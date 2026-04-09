@@ -35,6 +35,8 @@ Basic Dni , Just Don't be weird
 
 ──────•✦•──────
 
+<p align="center"
+
 ![](https://media1.tenor.com/m/cGhib-MYweEAAAAd/pjsk-project-sekai.gif)
 
 <p align="center"
