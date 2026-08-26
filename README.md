@@ -1,7 +1,7 @@
 
 <p align="center"
   
-![](https://media1.tenor.com/m/eQYmS-ROZeUAAAAC/leo-need-ichika-hoshino.gif)
+![](https://media1.tenor.com/m/9jbRrpE0gCIAAAAC/ineffa-ineffa-genshin.gif)
 
 <p align="center"
   
@@ -29,15 +29,11 @@
 
 **DNI**
 
-Basic Dni , Just Don't be weird
+Basic Dni , Don't be weird, skin/pony stealers, Under 14
 
 <p align="center"
 
 ──────•✦•──────
-
-<p align="center"
-
-![](https://media1.tenor.com/m/cGhib-MYweEAAAAd/pjsk-project-sekai.gif)
 
 <p align="center"
 
