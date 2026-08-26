@@ -29,7 +29,7 @@
 
 **DNI**
 
-Basic Dni , Don't be weird, skin/pony stealers, Under 14
+Basic Dni , Don't be weird
 
 <p align="center"
 
