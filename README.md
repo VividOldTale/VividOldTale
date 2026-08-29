@@ -8,7 +8,7 @@ C+H is encouraged! i dont mind at all
 w2i is preferred if you want to talk
 i might miss your msg if im afk
 
-You can call me Mae or Gigi
+sign my atabook if you have time
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 ### Fandoms Im in
