@@ -18,7 +18,7 @@ sign my atabook if you have time
 
 ### Interests
 
-*Genshin/Hsr , Pjsk , Hololive , Vocaloid , DDLC , Lycoris Recoil , gundam: witch from mercury*
+*Genshin/Hsr , Pjsk , Hololive , Vocaloid , DDLC , Lycoris Recoil , gundam: witch from mercury, crk*
 
 *Umamusume , Persona , Alienstage , Bloom into you , I Want to Love You Till Your Dying Day*
 
