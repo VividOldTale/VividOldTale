@@ -3,17 +3,14 @@
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
-Mae or Gigi , 19 , She/her
-
-Lesbian
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 ### Fandoms Im in
 
-**Genshin/Hsr , Pjsk , Hololive , Vocaloid , DDLC , undertale**
+**Genshin/Hsr , Pjsk , Hololive , Vocaloid , DDLC , Undertale**
 
-**Umamusume , Persona**
+**Umamusume , Persona , Alienstage**
 
 work in progress
 
