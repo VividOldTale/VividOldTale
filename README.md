@@ -1,7 +1,7 @@
 <div align="center">
 <img src=https://64.media.tumblr.com/d9999e6c8930dfae2e33f759d2d18d91/48e8b24a4bba14f5-82/s1280x1920/197c23fcda02fb6a3cc81b377961f3aef05b4276.pnj width=300>
 
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&weight=300&size=15&duration=4000&pause=1000&color=723CB9&vCenter=true&repeat=false&width=435&lines=%22You+have+time+to+talk+about+%22life%22+When+you+dont+even-;know+the+ultimate+truth+of+the+universe%3F%22)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&weight=300&size=15&duration=4000&pause=1000&color=723CB9&vCenter=true&repeat=true&width=435&lines=%22You+have+time+to+talk+about+%22life%22+When+you+dont+even-;know+the+ultimate+truth+of+the+universe%3F%22)](https://git.io/typing-svg)
 
 <img src=https://64.media.tumblr.com/4632dad8e644160209c618dfde9d77ba/52159fc2256916c7-eb/s1280x1920/fb97596daf17144feec4b0789ce3d196876c52e4.pnj width=300>
 
