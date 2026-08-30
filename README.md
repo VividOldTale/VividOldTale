@@ -16,6 +16,8 @@ sign my atabook if you have time
 
 <img src=https://64.media.tumblr.com/4632dad8e644160209c618dfde9d77ba/52159fc2256916c7-eb/s1280x1920/fb97596daf17144feec4b0789ce3d196876c52e4.pnj width=300>
 
+<details></details>
+ 
 ### Interests
 
 *Genshin/Hsr , Pjsk , Hololive , Vocaloid , DDLC , Lycoris Recoil , gundam: witch from mercury, crk*
