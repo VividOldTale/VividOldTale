@@ -1,10 +1,6 @@
 <div align="center">
 <img src=https://media1.tenor.com/m/10AR1gt675YAAAAd/yae-miko-yae-guuji.gif width=300>
 
-
-<img src=https://64.media.tumblr.com/4632dad8e644160209c618dfde9d77ba/52159fc2256916c7-eb/s1280x1920/fb97596daf17144feec4b0789ce3d196876c52e4.pnj width=300>
-
-
 *C+H is encouraged! i really dont mind at all*
 
 *w2i is preferred if you want to talk
