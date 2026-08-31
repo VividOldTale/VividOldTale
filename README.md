@@ -15,7 +15,7 @@ i might miss your msg if im afk*
 
 ### Interests
 
-*Genshin/Hsr , Pjsk , Hololive , DDLC , Lycoris Recoil , crk
+*Genshin/Hsr , Pjsk , Hololive , DDLC , Lycoris Recoil , crk*
 
 *Umamusume , Persona , Alnst , Final Fantasy VII*
 
