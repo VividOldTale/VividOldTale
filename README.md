@@ -8,7 +8,7 @@ i might miss your msg if im afk*
 
 *i dont interact first since im too shy to talk first im sorry about that, but im willing to talk*
 
-**DO not Copy or steal my skins please, i spent ages to make them**
+**do NOT Copy or steal my skins please, i spent ages to make them**
 
 *sign my atabook if you have time*
 
