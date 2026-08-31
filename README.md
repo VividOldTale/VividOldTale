@@ -12,7 +12,7 @@
 
 <img src=https://64.media.tumblr.com/4632dad8e644160209c618dfde9d77ba/52159fc2256916c7-eb/s1280x1920/fb97596daf17144feec4b0789ce3d196876c52e4.pnj width=300>
 
-### Interests
+### Interests 
 
 *Genshin/Hsr , Pjsk , Hololive , DDLC , Lycoris Recoil*
 
@@ -21,10 +21,11 @@
 <img src=https://64.media.tumblr.com/4632dad8e644160209c618dfde9d77ba/52159fc2256916c7-eb/s1280x1920/fb97596daf17144feec4b0789ce3d196876c52e4.pnj width=300>
 
 ## DNI
+<img src=https://media.tenor.com/oQYthUxLGiEAAAAi/genshin-impact-emote.gif align="right" width=50>
 
 *Basic Dni , just dont be weird, Under 16 IWC*
 
-︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
 <img src=https://64.media.tumblr.com/f83e3faff672a18383a9f27e9aca41ab/e1f046734938c35f-1e/s100x200/7b29bd8ee44e06cea3681314bb847a87bf60d23c.gifv width=100>
 
