@@ -8,8 +8,8 @@ Sign my Straw and ata if u have time
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 
-<img src=https://64.media.tumblr.com/f83e3faff672a18383a9f27e9aca41ab/e1f046734938c35f-1e/s100x200/7b29bd8ee44e06cea3681314bb847a87bf60d23c.gifv width=100>
+<img src=https://64.media.tumblr.com/0dc1ac82a7dd466f6838b5c8a2a4eea9/bdb958a0954c8617-73/s100x200/35312e6176de69ce51eb3938a2dd4084a3b0131d.gifv width=100>
 
-<img src=https://64.media.tumblr.com/eb3b2c3c787b83bb9c2c9f558b175590/e1f046734938c35f-20/s100x200/0466007d02ba1ccbe64a55b29e31c3fd2309792f.gifv width=100>
+<img src=https://64.media.tumblr.com/0687b4ef895493dd1ab3788bcc916c45/bdb958a0954c8617-dc/s100x200/4af72ea0323ec17bf09fe0dec50920cf3a610e8f.gifv width=100>
 
-<img src=https://64.media.tumblr.com/3a517d3953e4a3b1a1dfef3bdba374f6/e1f046734938c35f-e3/s100x200/74f7785d21a5e0e307b3705a7f1bcb6878c46b4c.gifv width=100>
+<img src=https://64.media.tumblr.com/cab3346ffdf8b5bb46d5d6d8e722c33b/bdb958a0954c8617-24/s100x200/2c874f263e76ce7d36b759806423ef12c31a7d5d.gifv width=100>
