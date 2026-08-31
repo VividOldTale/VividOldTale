@@ -2,6 +2,7 @@
 <img src=https://media1.tenor.com/m/TjjVW50srFsAAAAC/clueless-pretending.gif width=300>
 
 ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+
 Sign my Strawpage and Atabook if u have time
 
 <img src=https://64.media.tumblr.com/f83e3faff672a18383a9f27e9aca41ab/e1f046734938c35f-1e/s100x200/7b29bd8ee44e06cea3681314bb847a87bf60d23c.gifv width=100>
