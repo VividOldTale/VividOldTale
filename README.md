@@ -1,7 +1,7 @@
 <div align="center">
 <img src=https://64.media.tumblr.com/59794fd5da1b90ab8efbb814c86df530/fbc1d3ffe9859560-98/s2048x3072/6f31171ff7f8ffb29f1062fa312ce39133002d57.pnj width=300>
 
-Sign my Straw and if u have time
+Sign my Straw and ata if u have time
 
 [Ata](https://starrysky.atabook.org/?page=1) , 
 [Strawpage](https://v0dyanitsas.straw.page)
