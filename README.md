@@ -17,3 +17,6 @@ Sign my Straw and ata if u have time
 <img src=https://64.media.tumblr.com/cab3346ffdf8b5bb46d5d6d8e722c33b/bdb958a0954c8617-24/s100x200/2c874f263e76ce7d36b759806423ef12c31a7d5d.gifv width=100>
 
 <img src=https://64.media.tumblr.com/4d704ae239b0cd1ee161cb92f5dcf26d/a73388d33351d941-8f/s1280x1920/19766deb9fc1189466567dd494eb0266069adb10.pnj width=300>
+
+![](https://komarev.com/ghpvc/?username=VIVIDOLDTALE)
+
