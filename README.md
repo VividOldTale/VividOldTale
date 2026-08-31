@@ -6,7 +6,9 @@
 *w2i is preferred if you want to talk,
 i might miss your msg if im afk*
 
-*i dont interact first since im too shy im sorry about that, but im willing to talk*
+*i dont interact first since im too shy to talk first im sorry about that, but im willing to talk*
+
+**DO not Copy or steal my skins please, i spent ages to make them**
 
 *sign my atabook if you have time*
 
