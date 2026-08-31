@@ -1,10 +1,7 @@
 <div align="center">
 <img src=https://media1.tenor.com/m/TjjVW50srFsAAAAC/clueless-pretending.gif width=300>
 
-*C+H is encouraged! i really dont mind at all*
-
-*w2i is preferred if you want to talk,
-i might miss your msg if im afk*
+*C+H is encouraged!*
 
 *i dont interact first since im too shy to talk first im sorry about that, but im willing to talk*
 
