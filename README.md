@@ -1,5 +1,5 @@
 <div align="center">
-<img src=https://media1.tenor.com/m/10AR1gt675YAAAAd/yae-miko-yae-guuji.gif width=300>
+<img src=https://media1.tenor.com/m/TjjVW50srFsAAAAC/clueless-pretending.gif width=300>
 
 *C+H is encouraged! i really dont mind at all*
 
