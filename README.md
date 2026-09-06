@@ -6,5 +6,5 @@
 
 ![](https://64.media.tumblr.com/50e3274d1dd125c40c810b075abda25b/7a2a2ebc0f619da5-08/s1280x1920/6217f6d80ff7a5e951ccc735b851d7f7e47cab97.pnj)
   
-![](https://komarev.com/ghpvc/?username=VIVIDOLDTALE)
+![](https://komarev.com/ghpvc/?username=VIVIDOLDTALE&color=green)
 
