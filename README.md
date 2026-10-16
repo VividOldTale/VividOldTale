@@ -2,8 +2,6 @@
   
 <img src="https://media1.tenor.com/m/pVIXgNDXyQgAAAAd/sandbina-columbina.gif" width=500>
 
-THIS CUTESCENE STILL GOT ME IN A CHOKEHOLD I SWEARRR I CAN NOT STOP REPLAYING IT ALL OVERR oh goodness.. sandbina really got into my brain [im not complaining]
-
 Make sure to read my Strawpage for more info, Thanks
 
 fixing my layout
