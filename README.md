@@ -16,6 +16,13 @@ Entrust your sorrows to the faraway sea...
 > ##### i encourage wlw/yuri ship cuddles, especially sandbina and vodette im very sane about them
 
 
+
+
+
+<sup>
+  
+> ##### psst! if you read this.. i have a secret! i actually dont have vodyanitsa LISTEN. LISTEN TO ME. I LOST ON HER BANNER OKAY i will get her in her rerun. dont cancel me please im #innocent
+
   
 ![](https://komarev.com/ghpvc/?username=VIVIDOLDTALE&color=blue)
 
