@@ -5,7 +5,7 @@
   
 <img src="https://64.media.tumblr.com/c16c3bb567fc69aa39ae805654988c3c/f8d9f62183b91f3d-07/s1280x1920/8ce30fe26061a34d4cd2b62999821c516ebb0ef7.gifv" width=400>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&pause=1000&color=2EC98D&width=435&lines=Entrust+your+sorrows;to+the+faraway+sea...)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Press+Start+2P&pause=1000&color=099E99&width=435&lines=Entrust+your+sorrows;to+the+faraway+sea...)](https://git.io/typing-svg)
 
 <div align="center">
   
