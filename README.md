@@ -7,7 +7,7 @@
 
 <div align="center">
   
-[Atabook](https://starrysky.atabook.org/?page=1) 🌙 [Strawpage](https://v0dyanitsas.straw.page/)
+[Atabook](https://starrysky.atabook.org/?page=1) 🌙 [Strawpage](https://moonauthority.straw.page)
 
 
 <img src="https://64.media.tumblr.com/d3b8e1957e28b74cab93d7a5c11b167a/0cb04ba9bfee199f-de/s2048x3072/c9b9cecaa3a6f02dbd503e838c75e27a07faf97b.pnj" width=600>
