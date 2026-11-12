@@ -3,7 +3,7 @@
 
 <img src="https://64.media.tumblr.com/d3b8e1957e28b74cab93d7a5c11b167a/0cb04ba9bfee199f-de/s2048x3072/c9b9cecaa3a6f02dbd503e838c75e27a07faf97b.pnj" width=600>
   
-<img src="https://media1.tenor.com/m/MJ1O2aHIWwgAAAAC/genshin-impact-genshin.gif" width=400>
+<img src="https://media1.tenor.com/m/_LYC01g30T0AAAAd/sandrone-sandrone-teaser.gif" width=400>
 
 <div align="center">
   
